@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @keosik
+- 👀 I’m interested in games and gamedev
+- 🌱 I’m currently learning in skillfactory
+- 📫 How to reach me TG - @HELFL
+- ⚡ Fun fact: i`m stupid :D
